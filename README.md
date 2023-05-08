@@ -13,4 +13,3 @@ giovana.marinho@escola.pr.gov.br
 @GiovanaMarinho8
 
 ![descrição do GIF](https://media.tenor.com/4qABh_f8FUoAAAAC/squirtle-pokemon.gif)
-![descrição do GIF](file:///tmp/guest-6ossvj/Downloads/octocat-1683557953498.png)
