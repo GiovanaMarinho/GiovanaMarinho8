@@ -12,4 +12,4 @@ giovana.marinho@escola.pr.gov.br
 
 @GiovanaMarinho8
 
-![descrição do GIF](https://tenor.com/view/pokemon-pikachu-gif-20362431)
+![descrição do GIF](https://media.tenor.com/JQkWX-lI-b0AAAAC/pokemon-pikachu.gif)
